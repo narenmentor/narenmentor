@@ -5,4 +5,6 @@
 
 - Have taught more than 3000+ students in 5+ countries.
 - Been guest speakers in schools and colleges.
+- follow me on GitHub and LinkedIn 
+- [Follow on LinkedIn](https://www.linkedin.com/in/narendiranath/)
 
